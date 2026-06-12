@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://cdn.discordapp.com/attachments/your-logo-link.png" alt="ANIK X CHEATS Logo" width="200"/>
+  <img src="https://media.discordapp.net/attachments/1448757915035897886/1506560802185019472/axcmainlogi-removebg.png?ex=6a2d0815&is=6a2bb695&hm=7143889ef1c2202ce2ad32a05c32427d909007884d96310c41e26f7a532866f9&=&format=webp&quality=lossless&width=978&height=978" alt="ANIK X CHEATS Logo" width="200"/>
 
   # 🔥 ANIK X CHEATS PANEL 🔥
 
